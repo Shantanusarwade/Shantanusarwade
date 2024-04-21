@@ -14,7 +14,7 @@ Absolutely! Here's the updated version of your GitHub bio with a sport-related f
 
 📷 I'm also a passionate photographer, capturing moments that tell unique stories through my lens.
 
-📫 You can reach me via email at shantanusarwade55@gmail.comj or connect with me on LinkedIn (https://www.linkedin.com/in/shantanu-sarwade-044113295/).
+📫 You can reach me via email at shantanusarwade55@gmail.com or connect with me on LinkedIn (https://www.linkedin.com/in/shantanu-sarwade-044113295/).
 
 😄 Pronouns: He/Him
 
